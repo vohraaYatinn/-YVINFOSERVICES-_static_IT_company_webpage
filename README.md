@@ -31,3 +31,5 @@ SCREENSHOTS
 
 if you want to hire me, or have any doubt regarding the project or want to connect with me
 www.instagram.com/vohra_yatin
+
+email: vohrayatin9@gmail.com
